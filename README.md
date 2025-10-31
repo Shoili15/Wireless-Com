@@ -1,5 +1,5 @@
 ## Video Presentation
-Shusmuat Ghosh Shoili
+Shusmita Ghosh Shoili
 
 ID: IT21006
 
